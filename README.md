@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-H. His Deuises, for his owne exercise, and his Friends pleasure.Vincit qui patitur.Imprinted at LondVIRTVS IN ARDVO
+VIRTVS IN ARDVO
 1. To the Right Honorable, and most vertuous Lady, the Lady Marye Countesse of Pembrooke.
 
 1. ¶ The Table of the Contents of this Book.
